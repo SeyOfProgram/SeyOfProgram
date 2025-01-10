@@ -16,21 +16,21 @@
 ---
 
 ## 🌟 Motivatie  
-**Nee heb je een ja kan je krijgen!!**
+**NEE heb je een JA kan je krijgen!!**
 
 ---
 
-## 🖼️ Relevante Foto  
-![Bibliotheek inspiratie](https://perexpteamworks.com/wp-content/uploads/2024/07/bozkurt-kapak-500x400.webp)  
+## 💪️ Geef nooit op💪  
+![Motivatie inspiratie](https://i.ytimg.com/vi/7zndiUyDSf0/hq720.jpg?sqp=-oaymwE7CK4FEIIDSFryq4qpAy0IARUAAAAAGAElAADIQj0AgKJD8AEB-AH-CYAC0AWKAgwIABABGH8gUSgTMA8=&rs=AOn4CLBJqtc3Xw8Beo5FR2PhvE0pDZzprA)  
 
 ---
 
-## 📊 Schoolvakken
-| **Vakken**  | **Mening**          |  
+## Beste Games
+| **Games**  | **Rating**          |  
 |---------------|-------------------------|  
-| 08:00 - 12:00 | Studeren                |  
-| 12:00 - 13:00 | Pauze/Middageten        |  
-| 13:00 - 17:00 | Projecten of Codeerwerk |  
+| Fortnite      | 10/10                   |  
+| Call Of Duty  | 11/10 MASTERPIECE       |  
+| Roblox        | Niks waard😏           |  
 | 17:00 - 20:00 | Vrije Tijd / Hobby's    |  
 | 20:00 - 23:00 | Lezen of Schrijven      |  
 
